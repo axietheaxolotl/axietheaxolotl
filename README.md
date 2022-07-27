@@ -1,4 +1,4 @@
-australian graphic designer, i currently sprite for @tgstation13 but sometimes i sperg on some other projects
+australian graphic designer, i currently sprite for @tgstation but sometimes i sperg on some other projects
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=axietheaxolotl&show_icons=true&theme=dark&locale=en" alt="axietheaxolotl" /></p>
 
